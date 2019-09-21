@@ -10,7 +10,7 @@
 
 ### 最新
 
-* [世界，你好！](http://alunge.cn/hello-solo)
+* [我想和自己谈谈](http://alunge.cn/articles/2019/08/26/1566813582460.html)
 
 
 
